@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @b1nary-byt3
+- 👀 I’m interested in FiveM & RedM
+- 🌱 I’m currently learning anything I can
